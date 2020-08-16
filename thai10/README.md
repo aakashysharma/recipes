@@ -8,7 +8,7 @@
 - Take 4 garlic cloves and peel off the skin. Crush them and add to heated oil. 
 - Saute them for 2-3 minutes and add the chopped onion. 
 - Saute them till onions are translucent and slightly brown. Don't stir too much to get them slightly brown on one side. 
-- Add one can of Mutti (500gm) or fresh tomatoes chopped into pieces. 
+- Add one can of Mutti (400gm) or fresh tomatoes chopped into pieces. 
 - Mix it well and let it cook. Stir every 5 minutes of so, to avoid it getting burned at the bottom. 
 - Cook it for 20-30 minutes depending upon amount of tomatoes and make sure that the pungent tomato smell and gone. And you are left with slightly dry paste. 
 - (Crushed Peanuts) Take a blender and add roasted peanuts. Blend them to get coarse mix. Transfer them in a bowl. 
