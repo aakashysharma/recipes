@@ -1,8 +1,8 @@
 # Thai10
 
-### For three persons
-
 ## Curry
+
+### For three persons
 - Take one mid-sized onion and chop it in pieces. 
 - Heat up a pan and add some oil (1tbsp).
 - Take 4 garlic cloves and peel off the skin. Crush them and add to heated oil. 
